@@ -13,6 +13,8 @@ Sleep Clause
 
 No Sableye
 
+No Shuckle
+
 No Soul Dew
 
 All Pokemon Must Be Lv. 100

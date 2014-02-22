@@ -19,3 +19,9 @@ No Soul Dew
 
 All Pokemon Must Be Lv. 100
 
+No Legend Clause
+
+One Sturdy
+
+One Focus Sash
+
